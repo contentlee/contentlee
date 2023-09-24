@@ -1,4 +1,4 @@
-﻿## DEVELOP TAEK 🫡
+﻿## DEVELOP TECH & DEVELOP TAEK 🫡
 
 🖥️ <b>WEB_FRONT_END</b> DEVELOPER
 <br>
